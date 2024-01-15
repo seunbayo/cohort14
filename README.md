@@ -8,7 +8,7 @@
 ## micheal
 ## isaiah
 ## shark
-## agbola
+## Agboola Isaiah
 ## amos
 ## adejoke
 ## maliq
