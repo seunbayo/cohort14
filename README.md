@@ -5,7 +5,7 @@
 ## marvelous
 ## opeyemi
 ## muyiwas
-## micheal
+## micheal Timothy
 ## isaiah
 ## shark
 ## agbola
