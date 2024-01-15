@@ -6,7 +6,7 @@
 ## opeyemi
 ## muyiwas
 ## micheal
-## isaiah
+## isaiah Atijohan
 ## shark
 ## agbola
 ## amos
