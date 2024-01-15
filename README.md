@@ -2,7 +2,7 @@
 
 ## seunbayo  grazac
 ## damilare
-## marvelous
+## marvellous inya
 ## opeyemi
 ## muyiwas
 ## micheal
